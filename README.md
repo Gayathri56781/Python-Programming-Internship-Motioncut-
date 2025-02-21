@@ -1,1 +1,0 @@
-# Python-Programming-Internship-Motioncut-
